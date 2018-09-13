@@ -1,3 +1,3 @@
 # hello-world
 
-Hi, testing this out for submission of files to Udacity site. 
+check out my linkedin! https://www.linkedin.com/in/trinakok/
